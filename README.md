@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Python | AI**
 
-- 📫 How to reach me **landges091@gmail.com**
+- 📫 How to reach me **prathmeshlandge044@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
